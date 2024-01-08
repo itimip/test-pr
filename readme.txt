@@ -1,5 +1,5 @@
 Hello Morowali
 
-change tisna
+change tisnax
 
 change tiox
